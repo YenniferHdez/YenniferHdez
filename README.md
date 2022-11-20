@@ -7,6 +7,5 @@
 																			
 		📫 How to reach me jennifer_hh@hotmail.es
 
-	
-	𝐂𝐨𝐧𝐧𝐞𝐜𝐭 𝐰𝐢𝐭𝐡 𝐦𝐞:
+
 	
